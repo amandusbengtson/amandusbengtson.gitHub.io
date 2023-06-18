@@ -1,3 +1,3 @@
 # amandusbengtson.github.io
-</p hi /<
+hi
 
