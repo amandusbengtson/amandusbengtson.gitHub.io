@@ -1,3 +1,1 @@
 # amandusbengtson.github.io
-hi
-
